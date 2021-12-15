@@ -1,3 +1,5 @@
+![headshot](crv.jpg)
+
 # A little insight into Carlos Rodrigo
 Hi, Everyone! My name is Carlos Rodrigo and I am reading the book Github for Dummies. This README will give you a bit of information about me!
 
