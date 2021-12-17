@@ -9,3 +9,5 @@ I really love working in tech. Specifically, I love Deep Learning and Neural Net
 ## My Hobbies
 One of my favorite things to do is go to the Mountains - walk around and see the magnificent landscape and feeling the magic is enough for me :smile:
 
+## My Favorite Books
+Among my favortie books, an outstanding and consider the best world novel ever: Don Quixote, you should read it if not done yet!!!
